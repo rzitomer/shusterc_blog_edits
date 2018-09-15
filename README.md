@@ -11,3 +11,5 @@ In Canada, it takes at least 8 years from medical school to completion of reside
 <img src="http://kennedalemedical.com/wp-content/uploads/sites/282/2017/09/shutterstock_426687286.jpg" width="300" class="middle">
 
 [image source](http://kennedalemedical.com/wp-content/uploads/sites/282/2017/09/shutterstock_426687286.jpg)
+
+Sept 13, 2018
