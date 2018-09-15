@@ -1,5 +1,4 @@
 # My first blog post!
----
 
 Wow! I would have never guessed that one day I would create my own blog - this is pretty neat! 
 
